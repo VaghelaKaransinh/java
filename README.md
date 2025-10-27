@@ -1,1 +1,1 @@
-thank you amigoscode.
+thank you Amigoscode.
